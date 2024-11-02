@@ -1,0 +1,1 @@
+# AI-Kom-rki-macierzyste
